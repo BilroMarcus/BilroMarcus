@@ -8,8 +8,8 @@ Meu nome é Marcelo paulo dentro
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
+Srsexo@gmail.com
 
-@marcelopaludetto
+@Alanbedoura
 
 ![cena do filme beemoovie](https://media.giphy.com/media/LnCk8yxqXRoaI/200.gif)
